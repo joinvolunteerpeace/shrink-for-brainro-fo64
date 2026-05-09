@@ -1,4 +1,4 @@
-
+shrink for brainrots instant Script offers the most advanced shrink for brainrots Script, with auto-heal and anti-ban. Perfect for dominating any
 
 
 
